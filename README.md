@@ -1,7 +1,7 @@
 # Community-Rules
 This document contains the information you need to successfully participate on [What You Haven't Seen](https://www.youtube.com/c/whatyouhaventseen).
 
-If you want to know what prompted this, see [below](wtf?).
+If you want to know what prompted this, see "WTF?" below.
 
 ## ABOUT COMMENTS
 
@@ -90,7 +90,9 @@ annually bringing it to you. You pay me NOTHING for it and YouTube pays me NOTHI
 even offering exclusive access to material in exchange for it - and out of a literal one-million-plus people who read and saw 
 my request, twenty-three people came through, and they did so despite my clear statement that "supporters have no greater 
 privilege to dictate any aspect of my content than others." *Every one of those people is awesome for being willing to 
-financially support my work, and the overwhelming majority of the rest of you are just as awesome for appreciating and enjoying my content all the same.* I know that I am giving it to you for free and you are not any less of a good human being for accepting what I am giving you for free.
+financially support my work, and the overwhelming majority of the rest of you are just as awesome for appreciating and 
+enjoying my content all the same.* I know that I am giving it to you for free and you are not any less of a good human being 
+for accepting what I am giving you for free.
 
 But some of you are different. And I know that you exist, because you made that very clear. Some of you don't understand 
 that you are not entitled to tell me how to give you free content. That you are not entitled to tell me how I spend my time. 
