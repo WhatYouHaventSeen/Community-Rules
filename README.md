@@ -11,10 +11,10 @@ the top.
 
 When you have a half-dozen people cursing at you and commanding you to run your channel the way they demand - right after 
 trying something that I was already planning on never doing again - it can be very hard to remember that essentially everyone 
-here is extremely supportive of what I am doing. I mean, that's why you're all here! And there are a TON of you. It's crazy to 
-think about, but this channel has fifteen million unique viewers. And it had a half-dozen loud assholes. Well, some people 
-shouldn't be allowed to be loud -- and now they aren't. But I want you all to know *that I know* that it really is just a 
-handful of loud people.
+here is extremely supportive of what I am doing. Hell, that's why you're all here, right? And there are a TON of you. It's 
+crazy to think about, but this channel has fifteen million unique viewers. And it had a half-dozen loud assholes. Well, some 
+people shouldn't be allowed to be loud -- and now they aren't. But I want you all to know *that I know* that it really is just 
+a handful of loud people.
 
 *To the regulars on this channel, and to newcomers*: I appreciate your support and I appreciate you for your contributions. 
 You help to make this channel what it is. The actions of a handful of trolls necessitated these changes, but they are 
