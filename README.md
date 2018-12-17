@@ -67,45 +67,51 @@ The community is diverse and vibrant, and if you can act like an adult you are w
 alive 24/7 and the channel exists to improve transportation safety by providing a transparent and accessible disclosure of the 
 facts relating to incidents and accidents. I think I do a pretty good job.
 
-So, the channel. Think of a YouTube channel as a house, and think of my channel as a house that belongs to me. (If that 
-doesn't sit well with you, you need to keep reading.)
+Think of a YouTube channel as a house, and think of my channel as a house that belongs to me. (If that doesn't sit well with 
+you, you need to keep reading.)
 
-Like with all houses, if you can't or won't follow the house rules, you will not be allowed in the house. 
+Like with all houses, if you can't or won't follow the house rules, you will not be allowed in the house.
 
-In my house I do not allow assholery. That's the house rule. Don't be an asshole. The standard for assholery is 
+In my house I do not allow assholes. That's my house rule. Don't be an asshole. The standard for assholery is 
 of course subjective and I have instructed the mod team to err on the side of liberal approvals, but if you are unpleasant to 
-be around, I don't want you on my channel and you are going to get banned. Forever.<sup>1</sup>
+be around I don't want you anywhere near my channel and if you don't conform to the standard of "not being unpleasant" you are 
+going to get banned. Forever.<sup>1</sup>
 
 ## WTF?
 
 I'm going to be very direct here, because I don't want there to be any confusion about this.
 
-If you missed the fireworks, you are probably really confused and wondering what led to all this. The answer is: people acting 
-as though they had the authority to dictate aspects of my channel and its content.
+If you missed the fireworks, you are probably really confused and wondering what led to all this. The answer is "people 
+talking to me as though they had the authority to dictate aspects of my channel and its content."
 
 Get this straight:
 
 I enjoy bringing you the content on my channel, but you get it for free and I spend thousands of dollars and countless hours 
-annually bringing it to you. You pay me NOTHING for it and YouTube pays me NOTHING for it. I tried asking for your support - 
-even offering exclusive access to material in exchange for it - and out of a literal one-million-plus people who read and saw 
-my request, twenty-three people came through, and they did so despite my clear statement that "supporters have no greater 
-privilege to dictate any aspect of my content than others." *Every one of those people is awesome for being willing to 
-financially support my work, and the overwhelming majority of the rest of you are just as awesome for appreciating and 
-enjoying my content all the same.* I know that I am giving it to you for free and you are not any less of a good human being 
-for accepting what I am giving you for free.
+annually bringing it to you. You pay me NOTHING for it and YouTube pays me NOTHING for it. I even tried asking for your 
+support - hell, I offered exclusive access to material in exchange for it! - and out of a literal one-million-plus people who 
+read and saw my request twenty-three people came through. All of them did so despite my clear statement that "supporters have 
+no greater privilege to dictate any aspect of my content than others." 
+
+Every one of those people is awesome for being willing to financially support my work, and the overwhelming majority of the 
+rest of you are just as awesome for appreciating and enjoying my content all the same. *I know that I am giving it to you for 
+free and you are not any less of a good human being for accepting and enjoying what I am giving you.*
 
 But some of you are different. And I know that you exist, because you made that very clear. Some of you don't understand 
-that you are not entitled to tell me how to give you free content. That you are not entitled to tell me how I spend my time. 
-You can make requests; hell, you can make even strongly worded requests. Believe me, I can take a lot. But the minute you 
-start to tell me what to do you cross a bright line. And I will not tolerate it. To the point that I am literally paying 
-people to keep you away.
+that you are not entitled to tell me how to give you free content and how I should spend my time. 
+
+**Pay attention: You can make requests; hell, you can even make strongly worded requests. Believe me, I can handle it. But the 
+instnant you start to *tell me what to do* you cross my personal DO NOT CROSS line. And I will not tolerate it. To the point 
+that I am literally paying people to keep you away and I am happy doing so. I am an adult and I know my boundaries well. You 
+will not fuck with them without consequence.**
 
 If things were any different, if I was being paid or given *anything* in exchange for providing you with content, an argument 
-could possibly be made that you were entitled to something.<sup>2</sup> But it's NOT different, and if you think that you are 
-entitled to *anything* from me, you are delusional. If hearing that is doesn't sit well with you, you are one of the people I 
-don't want anything to do with. And you are not going to convince me otherwise. On the other hand, if what I wrote above makes 
-sense to you, then - from the bottom of my heart - I thank you for being a normal, decent human being, and I apologize for 
-having to institute draconian measures to keep entitled assholes at bay.
+could possibly be made that you were entitled to something.<sup>2</sup> But things are not different, and if you think that \
+you are entitled to *anything* from me, you are delusional. If hearing that is doesn't sit well with you, you may be one of 
+the people I don't want anything to do with. And that's okay, but you can't hang at my metaphorical house and you are not 
+going to convince me otherwise. 
+
+On the other hand, if what I wrote above makes sense to you, then - from the bottom of my heart - I thank you for being a 
+normal, decent human being, and I apologize for having to institute draconian measures to keep entitled assholes at bay.
 
 Now how about we get back to work?
 
@@ -117,6 +123,6 @@ Peace.
 
 <sup>1</sup> Google does an excellent job at detecting duplicate accounts created to circumvent bans. I can't speak for 
 Google, but there is a good chance that if you attempt to circumvent a ban by creating an alternate account you will have ALL 
-of your Google accounts on ALL Google services permanently shut down. You don't want that.
+of your Google accounts on ALL Google services permanently shut down. You probably don't want that.
 
 <sup>2</sup> That "something" would *still* not be "telling me what to do."
