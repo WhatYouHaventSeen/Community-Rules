@@ -23,10 +23,10 @@ of you responded in ten minutes - and that all of you have a track record commen
 confidence. I really appreciate it.
 
 If you would like to volunteer as a comment moderator AND you have a track record of reasonably sane commenting on this 
-channel, I need your help and would love to have you onboard. You do not need to commit any specific amount of time to this 
+channel, I need your help and would love to have you onboard. You do not need to commit any specific amount of time to the 
 channel, the job is easy, and you can resign at any time.
 
-### Applying is simple:
+### Applying is easy:
 
 1. Draft an email to modteam@whatyouhaventseen.com.
 
@@ -106,7 +106,7 @@ You will not cross with them without consequences.**
 
 If things were any different, if I was being paid or given *anything* in exchange for providing you with content, an argument 
 could possibly be made that you were entitled to something.<sup>2</sup> But things are not different, and if you think that \
-you are entitled to *anything* from me, you are delusional. If hearing that is doesn't sit well with you, you may be one of 
+you are entitled to *anything* from me, you are delusional. If hearing that doesn't sit well with you, you may be one of 
 the people I don't want anything to do with. And that's okay, but you can't hang at my metaphorical house and you are not 
 going to convince me otherwise. 
 
