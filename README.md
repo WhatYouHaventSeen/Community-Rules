@@ -99,10 +99,10 @@ free and you are not any less of a good human being for accepting and enjoying w
 But some of you are different. And I know that you exist, because you made that very clear. Some of you don't understand 
 that you are not entitled to tell me how to give you free content and how I should spend my time. 
 
-**Pay attention: You can make requests; hell, you can even make strongly worded requests. Believe me, I can handle it. But the 
-instnant you start to *tell me what to do* you cross my personal DO NOT CROSS line. And I will not tolerate it. To the point 
-that I am literally paying people to keep you away and I am happy doing so. I am an adult and I know my boundaries well. You 
-will not fuck with them without consequence.**
+**Pay attention: You can make requests; hell, you can even make strongly worded requests. Believe me, I can handle them. But 
+the instant you start to *tell me what to do* you cross my personal DO NOT CROSS line. And I will not tolerate it. To the 
+point that I am literally paying people to keep you away and I am happy doing so. I am an adult and I know my boundaries well. 
+You will not cross with them without consequences.**
 
 If things were any different, if I was being paid or given *anything* in exchange for providing you with content, an argument 
 could possibly be made that you were entitled to something.<sup>2</sup> But things are not different, and if you think that \
