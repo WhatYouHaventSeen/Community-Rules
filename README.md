@@ -3,6 +3,33 @@ This document contains the information you need to successfully participate on [
 
 If you want to know what prompted this, see "WTF?" below.
 
+## PREFACE (ADDED AFTER I HAD WRITTEN EVERYTHING BELOW)
+
+As no doubt came through in what I wrote earlier, the unfortunately-loud voices of an obnoxious few really got to me. 
+Hilariously, that a lot of people were screaming back at the idiots on my behalf had the effect of raising their comments to 
+the top.
+
+When you have a half-dozen people cursing at you and commanding you to run your channel the way they demand - right after 
+trying something that I was already planning on never doing again - it can be very hard to remember that essentially everyone 
+here is extremely supportive of what I am doing. I mean, that's why you're all here! And there are a TON of you. It's crazy to 
+think about, but this channel has fifteen million unique viewers. And it had a half-dozen loud assholes. Well, some people 
+shouldn't be allowed to be loud -- and now they aren't. But I want you all to know *that I know* that it really is just a 
+handful of loud people.
+
+*To the regulars on this channel, and to newcomers*: I appreciate your support and I appreciate you for your contributions. 
+You help to make this channel what it is. The actions of a handful of trolls necessitated these changes, but they are 
+ultimately for all of our benefit and they are NOT targeted at or because of you. You have nothing to worry about; much to the 
+contrary, in fact, you are the people whose voices deserve to be heard louder here. You deserve to never be overshadowed by or 
+out-yelled by people who are just here to stir up trouble. And those people are gone. For good. 
+
+You all know that my channel is the only place on the internet serving up original transportation safety content, but it's 
+working toward a new distinction: one of the only places on YouTube where trolls won't last.
+
+Please, continue to enjoy yourselves as always here. The skies are bluer than ever and that metaphorical guy who refuses to 
+announce his presence on the CTAF (but blames you for his near-miss) has been banned for life.
+
+-WYHS
+
 ## ABOUT COMMENTS
 
 Following a very frustrating experience that led to my closing comments on the channel, comments are once again open. Your 
@@ -73,13 +100,17 @@ you, you need to keep reading.)
 Like with all houses, if you can't or won't follow the house rules, you will not be allowed in the house.
 
 In my house I do not allow assholes. That's my house rule. Don't be an asshole. The standard for assholery is 
-of course subjective and I have instructed the mod team to err on the side of liberal approvals, but if you are unpleasant to 
-be around I don't want you anywhere near my channel and if you don't conform to the standard of "not being unpleasant" you are 
-going to get banned. Forever.<sup>1</sup>
+of course subjective and I have instructed the mod team to err on the side of liberal approvals (if you have been around for a 
+while and have not received a direct warning, you're fine) but if you are unpleasant to be around I don't want you anywhere 
+near my channel and if you don't conform to the standard of "not being unpleasant" you are going to get banned. Forever. 
+<sup>1</sup>
 
 ## WTF?
 
-I'm going to be very direct here, because I don't want there to be any confusion about this.
+*If you have not read the preface above, please do so before you read on. I want to underscore that I know that you are not 
+the problem.*
+
+I'm going to be very direct here, because I don't want there to be any confusion about this. 
 
 If you missed the fireworks, you are probably really confused and wondering what led to all this. The answer is "people 
 talking to me as though they had the authority to dictate aspects of my channel and its content."
@@ -100,7 +131,7 @@ But some of you are different. And I know that you exist, because you made that 
 that you are not entitled to tell me how to give you free content and how I should spend my time. 
 
 **Pay attention: You can make requests; hell, you can even make strongly worded requests. Believe me, I can handle them. But 
-the instant you start to *tell me what to do* you cross my personal DO NOT CROSS line. And I will not tolerate it. To the 
+the instant you start to *command me what to do* you cross my personal DO NOT CROSS line. And I will not tolerate it. To the 
 point that I am literally paying people to keep you away and I am happy doing so. I am an adult and I know my boundaries well. 
 You will not cross with them without consequences.**
 
@@ -111,9 +142,10 @@ the people I don't want anything to do with. And that's okay, but you can't hang
 going to convince me otherwise. 
 
 On the other hand, if what I wrote above makes sense to you, then - from the bottom of my heart - I thank you for being a 
-normal, decent human being, and I apologize for having to institute draconian measures to keep entitled assholes at bay.
+normal, decent human being, and I apologize for having to institute these measures to keep entitled assholes at bay. In the 
+end it is going to create an even better community for all of us.
 
-Now how about we get back to work?
+Time to get back to work :)
 
 Peace.
 
@@ -125,4 +157,4 @@ Peace.
 Google, but there is a good chance that if you attempt to circumvent a ban by creating an alternate account you will have ALL 
 of your Google accounts on ALL Google services permanently shut down. You probably don't want that.
 
-<sup>2</sup> That "something" would *still* not be "telling me what to do."
+<sup>2</sup> That "something" would *still* not be "commanding me what to do." Particularly while telling me to fuck myself.
